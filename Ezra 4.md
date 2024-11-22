@@ -12,7 +12,7 @@
 
 # **The World Seeks to Intimidate (Ezra 4:4-5)**
 
-* If the devil cannot fool you through friendship, he will intimidate through \_\_\_.
+* If the devil cannot fool you through friendship, he will intimidate through **\_\_\_**.
 
 * If the devil cannot get you to compromise, he will try to make you \_\_\_.
 
