@@ -1,4 +1,4 @@
-SERIES: Ezra-Nehemiah   
+## SERIES: Ezra-Nehemiah   
 **A Kingdom of Priests**  
 Ezra 7
 
