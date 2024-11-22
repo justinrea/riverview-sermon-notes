@@ -4,7 +4,7 @@
 
 * God’s people separate from the world so they can be a witness to the world.
 
-  * The leaders were not concerned about their	\_\_\_.
+  * The leaders were not concerned about their	**\_\_\_\_\_\_\_\_\_\_\_\_\_\_**.
 
   * The leaders were concerned about their \_\_\_.
 
