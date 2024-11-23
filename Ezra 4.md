@@ -1,4 +1,4 @@
-* They tried to fool them with 	.
+* They tried to fool them with **\_\_\_\_\_\_\_\_\_\_\_\_\_\_*.
 
 * Cooperation with the world can lead to **\_\_\_\_\_\_\_\_\_\_\_\_\_\_** in the church.
 
