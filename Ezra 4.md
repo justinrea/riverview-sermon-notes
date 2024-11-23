@@ -1,6 +1,6 @@
 * They tried to fool them with 	.
 
-* Cooperation with the world can lead to \_\_\_	in the church.
+* Cooperation with the world can lead to **\_\_\_\_\_\_\_\_\_\_\_\_\_\_** in the church.
 
 * God’s people separate from the world so they can be a witness to the world.
 
