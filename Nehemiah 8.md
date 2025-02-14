@@ -2,66 +2,6 @@ SERIES: Ezra-Nehemiah
 **Bring the Book\!**  
 Nehemiah 8
 
-**Lord, Increase our Desire for Your Word. (1-3)**
-
-* All the people **gathered**.  
-* They begged for the Bible.   
-  * The Scriptures were written by **man**. “*The book of the Law of Moses…”*  
-  * The Scriptures are inspired by **God**. “*that the Lord had commanded Israel.”*  
-* They stood and listened and paid attention for **6** hours.   
-  * Your desire will be revealed in your **time** in the word.   
-  * Your desire will be revealed in your **treatment** of the word. 
-
-
-**Lord, Increase our Reverence for Your Word. (4-6)**
-
-* The preaching was authoritative.  
-* The Bible was **elevated**.   
-* The congregation stood **captivated**.   
-* The Lord was **celebrated**.   
-* The people were dedicated.
-
-   
-**Lord, Increase our Understanding of Your Word. (7-8)**
-
-* Good teachers should clearly **explain** the Bible.  
-  * This was interpretation.   
-* Good teachers should carefully **expound** the Bible.   
-  * This was application. 
-
-**Lord, Increase our Joy in Your Word. (9-12)**
-
-* The word brings **conviction** that leads to repentance.   
-* The word brings **comfort** that leads to rejoicing.   
-  * Their tears turned to **cheers**.   
-  * Their conviction turned to **celebration**.   
-* Question: Do you find your strength in the joy of the Lord?   
-  * It is never enough to **read** the word…  
-  * It is not enough to receive the word…  
-  * We must also **rejoice** in the Word. (Ps. 119:162)  
-* Question: Do you delight in God’s word?   
-  * Would you rather have God’s word than **food**? (Ps. 119:103; Luke 10:38-42)  
-  * Would you rather have God’s word than **sleep**? (Ps. 119:55, 62, 147-148)  
-  * Would you rather have God’s word than **wealth**? (Ps. 119:14, 72, 137, 162\)  
-* The word brings joy because it points us to **Christ**. 
-
-
-**Lord, Increase our Obedience to Your Word. (13-18)**
-
-* The desire to study the word deeper started with the **men**.   
-* They kept the feast of booths in obedience to God’s word.   
-  * It was a time of looking **back** at the faithfulness of God   
-  * It was a time of looking **around** at the goodness of God.   
-  * It was a time of looking **ahead** to the kingdom of God.   
-* Obedience increases joy.   
-  * Revival doesn’t happen until we are committed to do what it says.  
-  * You only believe as much of the Bible as you are willing to **obey**. (James 1:22)  
-  * Obedience should be the joyful response to God’s **grace** in Christ. 
-
-SERIES: Ezra-Nehemiah  
-**Bring the Book\!**  
-Nehemiah 8
-
 **Lord, Increase our \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ for Your Word. (1-3)**
 
 * All the people **\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**.  
@@ -116,4 +56,4 @@ Nehemiah 8
 * Obedience increases joy.   
   * Revival doesn’t happen until we are committed to do what it says.  
   * You only believe as much of the Bible as you are willing to **\_\_\_\_\_\_\_\_\_\_\_\_\_**. (James 1:22)  
-  * Obedience should be the joyful response to God’s **\_\_\_\_\_\_\_\_\_\_\_\_\_** in Christ. 
+  * Obedience should be the joyful response to God’s **\_\_\_\_\_\_\_\_\_\_\_\_\_** in Christ.
